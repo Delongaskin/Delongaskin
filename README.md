@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Delongaskin
 - 👀 I’m interested in ...Making passive income 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ..creating business and patient ideas
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...delongaskin@gmail.com
 
